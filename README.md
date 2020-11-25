@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: что это значит? дайте переводчика
 - ⚡ Fun fact: Treet - Tree
---> i am shit.
+--> i am debil.
